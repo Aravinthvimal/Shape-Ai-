@@ -1,1 +1,1 @@
-Hot coded details and experience for the upcoming #ShapeAI botcamps 
+Bootcamps and experience for the upcoming #ShapeAI events! Hot Coded
